@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Feliciayoshimi
+- 👋 Hi, I’m Yoshimi from Bali, Indonesia
 - 👀 I’m interested in writing, movie and editing
 - 🌱 I’m currently learning communication of science
 - 💞️ I’m looking to collaborate on any movie related
